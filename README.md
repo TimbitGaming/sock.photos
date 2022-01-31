@@ -1,2 +1,2 @@
 # sock.photo
-Photos of socks, but open sourced and free.
+Photos of stinky socks from a stinky gay
